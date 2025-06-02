@@ -1,4 +1,4 @@
-# Analysis Data Analyst Role in Job Market
+# Analyze Data Analyst Role in Job Market
 <img width="923" alt="Screenshot 2025-06-02 at 5 12 05 PM" src="https://github.com/user-attachments/assets/e7834012-6ef7-44c6-b1dd-cb294ebca20a" />
 
 ## Storyline
